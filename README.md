@@ -31,7 +31,6 @@
 
 ##  Contact- 8126401610
 -  Email: umamacare@gmail.com  
--  Portfolio: (optional)
 
 ---
 
